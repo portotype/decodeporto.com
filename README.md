@@ -1,6 +1,4 @@
-# Decode Porto
-
-Mapa do Porto com lugares comuns.
+# Mapa do Porto com lugares comuns.
 
 ![Mapa do Porto](2022-11-27%20Porto.png)
 
