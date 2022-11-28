@@ -1,8 +1,8 @@
-# Mapa do Porto com lugares comuns.
+# Mapa do Porto
 
 ![Mapa do Porto](2022-11-27%20Porto.png)
 
-# Lista de lugares atualizado
+# Lista de lugares (A→Z)
 
 - Aliados: zona limitada pela Avenida dos Aliados, a norte pela Pr. do General Humberto Delgado (já foi Pr. do Município e Pr. De Sidónio Pais) e a sul pela Praça da Liberdade.
 - Anémona: "She Changes", uma escultura situada na Pr. Cidade do Salvador, em Matosinhos.
