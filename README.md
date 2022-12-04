@@ -37,4 +37,4 @@
 - Shell: Bomba de gasolina da Marechal.
 - Via Rápida ou AEP: Av. da Associação Empresarial de Portugal, antiga Via Rápida de Leixões.
 - Virtudes: normalmente designa o Passeio das Virtudes, trecho de rua inserida no Parque pequeno das Virtudes. Juntos são o miradouro que fica por cima do Jardim Municipal do Horto das Virtudes, comumente chamado Jardim das Virtudes.
-(sem nome): Monumento ao Empresário.
+- (sem nome): Monumento ao Empresário.
