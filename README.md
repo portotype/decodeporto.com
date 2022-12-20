@@ -14,7 +14,7 @@
 - Castelo do Queijo: Forte de São Francisco Xavier do Queijo, sobre o penedo do Queijo, na Praça de Gonçalves Zarco.
 - Chinês da Ponte: chama-se simplesmente Restaurante Chinês.
 - Cristo Rei: Zona circundante da Praça Dom Afonso V, incluindo o passeio e pequeno jardim. O nome vem da Igreja Paroquial de Cristo Rei.
-- Foco ou Graham ou Grahamo (falado) ou Greiamo (falado): Parque Residencial da Boavista, que inclui os antigo cinema Estúdio Foco e a antiga Fábrica de Fiação e Tecidos da Boavista, conhecida por Fábrica do Graham.
+- Foco ou Graham ou Grahamo (falado) ou Greiamo (falado): Parque Residencial da Boavista, que inclui o antigo cinema Estúdio Foco e a antiga Fábrica de Fiação e Tecidos da Boavista, conhecida por Fábrica do Graham.
 - Fonte da Moura: nome dado à zona do início da Av. do Dr. Antunes Guimarães, no cruzamento com a Av. da Boavista, devido a uma fonte que ali existiu entre a R. da Fonte da Moura e a R. da Vilarinha, cuja lenda associa à história de uma jovem moura. Também é o nome do Bairro que existe no mesmo local, a nascente da Avenida da Boavista. A zona também é, às vezes, chamada de Concha Douro, por causa da confeitaria-café com esse nome.
 - Fluvial: Zona que desagua no Jardim do Cálem e começa no cimo do Clube Fluvial Portuense. 
 - Gás: zona da antiga Central Térmica do Ouro, conhecida por Fábrica do Gás, junto ao Aleixo. Também é aqui de onde sai a lancha Flor do Gás, que faz a travessia Porto - Afurada.
