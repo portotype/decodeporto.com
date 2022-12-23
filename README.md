@@ -1,3 +1,3 @@
 
-[📍 Mapa do Porto](/porto/)
-[🍲 Comidas tradicionais](/comida/)
+- [📍 Mapa do Porto](/porto/)
+- [🍲 Comidas tradicionais](/comida/)
