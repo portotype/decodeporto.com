@@ -1,6 +1,6 @@
 # Mapa do Porto
 
-![Mapa do Porto](2022-12-20-Porto.png)
+![Mapa do Porto](/2022-12-20-Porto.png)
 
 # Lista de lugares (A→Z)
 
