@@ -12,3 +12,25 @@ Para adicionar:
 - Bonecos de massapão
 - Frigideiras
 - Covilhetes (Salgado, Vila Real)
+- Croquetes (a bit all over the place)
+- Rissóis/ carne peixe camarão 
+- Bolinhos de bacalhau 
+- Jesuíta 
+- Ovos moles
+- Pastéis de Tengugal  
+- Filhoses
+- Rabanadas
+- Formigos 
+- Sonhos
+- Mexidos
+- Arroz doce/letria 
+- Bolo de arroz
+- Folar
+- Dom Rodrigo
+- Bola de Berlim
+- Torta de Azeitão
+- Queijadas
+- Toucinho do céu
+- Pataniscas de bacalhau
+- Alheira
+- Bolo do caco madeira
