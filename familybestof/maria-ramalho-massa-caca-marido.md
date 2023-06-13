@@ -10,11 +10,10 @@ tomate comum sem grainhas. Quantidades: 1 coração de boi grande por cada duas 
 - E sumo de meio limão por cada duas pessoas
 - Massa Linguini 85gr por pessoa. Idealmemente Barilla Navette nr 13.
 
-Por água a ferver. Quando começar a ferver juntar o sal e de seguida a massa, deixar cozer o tempo sugerido
+Receita
+1. Por água a ferver. Quando começar a ferver juntar o sal e de seguida a massa, deixar cozer o tempo sugerido
 pelo pacote.
-
-Enquanto a massa coze, numa taça grande colocar o tomate cortado, a mozzarella “desfiada” à mão, o
+2. Enquanto a massa coze, numa taça grande colocar o tomate cortado, a mozzarella “desfiada” à mão, o
 manjericão cortado e temperar com o sal, azeite e sumo de limão.
-
-Quando a massa estiver cozida, escorrer a água e deitar logo de seguida, quente, na taça com o tomate e
+3. Quando a massa estiver cozida, escorrer a água e deitar logo de seguida, quente, na taça com o tomate e
 mozzarella e misturar tudo muito bem, servir de seguida.
