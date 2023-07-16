@@ -24,10 +24,10 @@ Receita
 - Juntar duas cenouras raladas
 - Juntar um Um abacate cortado 
 - Juntar um tomate sem grainhas cortado as tiras 
-- Adicionar amêndoas cortadas a gosto (muitas)
+- Adicionar amêndoas cortadas (em 2) a gosto (muitas)
 - Adicionar sementes de abóbora a gosto (muitas)
 - Juntar a mistura de alface, espinafres e rúcula 
-- Colocar numa taça e Temperar com sal, azeite e vinagre
+- Colocar numa taça e temperar com sal, azeite e vinagre
 - Juntar tudo
 - Adicionar croutons 
 - Fatiar o pão de água, regar com azeite e oregãos e alourar na frigideira 
