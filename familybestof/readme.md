@@ -4,6 +4,7 @@ Maria Ramalho
 - [Massa caça-marido](maria-ramalho-massa-caca-marido.md)
 - [Jardineira de Scones](maria-ramalho-jardineira-de-scones.md)
 - [Bowl de salmão da Maria](maria-ramalho-bowl-de-salmao-a-moda-da-maria.md)
+- [Salada redentora da cenoura ralada](maria-ramalho-salada-redentora-da-cenoura-ralada.md)
 - [Bolo de frutas de Berlim](maria-ramalho-bolo-de-frutas-de-berlim.md)
 - [O meu salame de Chocolate](maria-ramalho-o-meu-salame-de-chocolate.md)
 - [Tiramisu](maria-ramalho-tiramisu.md)
