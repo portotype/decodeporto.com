@@ -12,3 +12,6 @@ Maria Ramalho
 Teresa Vaz
 - [Arroz de Míscaros](teresa-vaz-arroz-de-miscaros.md)
 - [Escalopes com cogumelos e molho de mostarda](teresa-vaz-escalopes-com-cogumelos-e-molho-de-mostarda.md)
+
+Nina Ayres Pereira
+- [Estufado Dominical](nina-estufado-dominical.md)
