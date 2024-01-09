@@ -1,14 +1,14 @@
 QUADRADOS DE CHOCOLATE
 
-Ingredientes
+Ingredientes:
 - 250g de açúcar
 - 150g de margarina
 - 150g de farinha
-- 150g de chocolate (Nesquik)
+- 150g de chocolate. Usar nesquik em pó, o chocolate do Leite.
 - 6 ovos
 - 1 colher de chá de fermento
 
-Receita
+Receita:
 1. Bate-se a margarina com o açúcar muito bem.
 2. Junta-se depois das gemas, a farinha, o fermento, e metade do chocolate.
 3. Por fim as claras em castelo, e a outra metade do chocolate.
