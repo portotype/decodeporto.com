@@ -1,6 +1,6 @@
 Estufado de vitela dominical
 
-Ingredientes e material
+Ingredientes e material:
 - Panela de pressão.
 - Receita para um grupo grande, 28 pessoas, 12 adultos e umas 20 crianças, a sobrar.
 - 3.5kg x de rabada (alcatra) de vitela, vitelão ou boi. Na peça que comprámos, vinha maminha. Comprada no talho do Pingo Doce.
@@ -11,7 +11,7 @@ Ingredientes e material
 - Azeite.
 - Sal grosso.
 
-Receita
+Receita:
 - Partir a carne em cubos de 3 cm.
 - Fazer um estrugido com cebola picada, 5 dentes de alho e azeite a cobrir bem o fundo de uma panela de pressão.
 - Alourar a carne toda sem juntar água, o que faz com que vá largando o suco da carne.
