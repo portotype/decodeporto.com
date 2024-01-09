@@ -1,6 +1,6 @@
 A SALADA REDENTORA DA CENOURA RALADA
 
-Ingredientes para 2 pessoas
+Ingredientes para 2 pessoas:
 - Bifes de frago
 - Duas cenoura
 - Abacate
@@ -17,7 +17,7 @@ Ingredientes para 2 pessoas
 - Azeite e vinagre
 - Oregãos
 
-Receita
+Receita:
 - Temperar bifes de frango com limão alho e sal
 - Fritar os bifes em azeite
 - Cortar em tiras finas (tipo meio centimetro por 3 cm)
