@@ -15,3 +15,6 @@ Teresa Vaz
 
 Nina Ayres Pereira
 - [Estufado Dominical](nina-estufado-dominical.md)
+
+Teresa Bento
+- [Quadrados de Chocolate](teresa-bento-quadrados-de-chocolate.md)
