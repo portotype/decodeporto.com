@@ -14,3 +14,5 @@ Receita:
 3. Por fim as claras em castelo, e a outra metade do chocolate.
 4. Coze-se em tabuleiro, e retiram-se os quadros mesmo no fim da cozedura.
 5. No fim corta-se em cubos de 6 - 7cm. Polvilha-se as partes mais húmidas com açúcar, batendo os quadrados numa taça com o açúcar.
+
+Obrigado Marina ;) <3 
